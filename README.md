@@ -8,7 +8,7 @@ I'm Hreljin, a Data Analyst from U.A.E.. Welcome to my GitHub profile!
 
 ## Fun Facts
 
-- 🎮 I enjoy playing on my Xbox in my free time.
+- 🎮 I enjoy playing Palworld on my Xbox in my free time.
 - 📚 I'm currently reading tons of Manga.
 - 🌍 I sometimes love to travel and explore new places.
 
